@@ -1,4 +1,4 @@
-# Team Policumbent - IT Division Tasks, April 2025 recruitment
+# Team Policumbent - IT Division Tasks, October 2025 recruitment
 
 [_[English version below]_](#general-information)
 
